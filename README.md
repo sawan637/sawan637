@@ -29,8 +29,8 @@
 ---
 
 ### 📫 Let's Connect:
-- [LinkedIn](https://www.linkedin.com/in/YOUR-USERNAME)  
-- 📧 Email: yourname@gmail.com  
+- [LinkedIn](https://www.linkedin.com/in/sawan-sharma)  
+- 📧 Email: sharmasawan328@gmail.com  
 - 🌐 Portfolio: [Coming Soon!]
 
 ---
